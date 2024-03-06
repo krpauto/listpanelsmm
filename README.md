@@ -11,3 +11,6 @@ Social Media Marketing Website List
 
 <p>https://www.wstore.co.id/</p>
 <p>BONUS DEPO 10%</p>
+
+<p>https://www.herupedia.id/</p>
+<p>BONUS DEPO 10%</p>
