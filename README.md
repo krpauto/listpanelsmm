@@ -17,4 +17,4 @@ Social Media Marketing Website List
 <p>https://justanotherpanel.com/</p>
 
 <p>https://sprintpedia.id/</p>
-<p>BONUS DEPO 10%<</p>
+<p>BONUS DEPO 13%<</p>
