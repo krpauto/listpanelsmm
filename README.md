@@ -2,7 +2,7 @@
 
 Social Media Marketing Website List
 <p>https://irvankedesmm.co.id/</p>
-<p>BONUS DEPO 14%</p>
+<p>BONUS DEPO 15%</p>
   
 <p>https://sosmedonline.com/</p>
 <p>BONUS DEPO 10%</p>
