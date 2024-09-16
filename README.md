@@ -19,6 +19,9 @@ Social Media Marketing Website List
 <p>https://justanotherpanel.com/</p>
 <p>rajasmm</p>
 
+<p>https://www.luckysmm.id/</p>
+<p>https://bulkfollows.com/</p>
+
 <p>https://sprintpedia.id/</p>
 <p>BONUS DEPO 13%<</p>
 
