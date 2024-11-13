@@ -8,7 +8,7 @@ Social Media Marketing Website List
 <p>BONUS DEPO 10%</p>
 
 <p>https://www.luckysmm.id/</p>
-<p>BONUS DEPO 10%</p>
+<p>BONUS DEPO 13 TF DANA%</p>
 
 <p>https://www.wstore.co.id/</p>
 <p>BONUS DEPO 13%</p>
