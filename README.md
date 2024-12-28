@@ -11,7 +11,7 @@ Social Media Marketing Website List
 <p>BONUS DEPO 12%</p>
 
 <p>https://www.wstore.co.id/</p>
-<p>BONUS DEPO 12%</p>
+<p>BONUS DEPO 13%</p>
 
 <p>PANEL SMM PUSAT</p>
 <p>https://justanotherpanel.com/</p>
