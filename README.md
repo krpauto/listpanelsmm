@@ -12,7 +12,7 @@ Social Media Marketing Website List
 <p>BONUS DEPO 11 DANA%</p>
 
 <p>https://www.wstore.co.id/</p>
-<p>BONUS DEPO 15% (QRIS) </p>
+<p>BONUS DEPO 12% (QRIS) </p>
 
 
 <p>PANEL SMM PUSAT</p>
