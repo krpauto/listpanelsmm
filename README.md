@@ -14,7 +14,6 @@ Social Media Marketing Website List
 <p>https://www.wstore.co.id/</p>
 <p>BONUS DEPO 12% (QRIS) </p>
 
-
 <p>PANEL SMM PUSAT</p>
 <p>https://justanotherpanel.com/</p>
 <p>https://www.smmraja.com/id</p>
