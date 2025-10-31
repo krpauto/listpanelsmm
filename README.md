@@ -5,7 +5,7 @@ Social Media Marketing Website List
 <p>BONUS DEPO 13%</p>
 
   
-<p>https://sosmedonline.com/</p>
+<p>https://sosmedonline.com</p>
 <p>BONUS DEPO 10%</p>
 
 
